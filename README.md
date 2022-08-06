@@ -1,1 +1,1 @@
-# Taichung-Nung-Hsiang-Stinky-Tofu.io
+# taichung-nung-hsiang-stinkytofu
